@@ -1,1 +1,1 @@
-![Texto Alternativo](![image](https://github.com/user-attachments/assets/d04ed7af-b2e9-4dc6-b253-11221d958cce))
+![Banner](![image](https://github.com/user-attachments/assets/0f059d37-408c-4fdd-890c-ecc081af24ce)
